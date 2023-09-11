@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ELIMOK
+- 👀 I’m interested in php
+- im trap in school now 
